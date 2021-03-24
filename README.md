@@ -1,3 +1,3 @@
 # Portfolio-YunJaePark
 
-포트폴리오 준비중..
+포트폴리오 언제 작성할지 모르겠음.
